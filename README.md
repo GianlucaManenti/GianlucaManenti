@@ -1,4 +1,4 @@
-## Seja bem-vindo(a) ao perfil do Gianluca!!😉
+## Seja bem-vindo(a) ao perfil do Gianluca!!
 
  <div>
    <a href="https://github.com/GianlucaManenti">
